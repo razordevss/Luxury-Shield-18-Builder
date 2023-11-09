@@ -3,7 +3,7 @@ Hello friends, I am sharing the Luxury Shield 18 Builder Link with you. Good use
 
 Beware of fake sites and don't buy from there.
 
-https://www.luxurycrypter.com
+https://t.me/luxuryprotector
 
 ![jhlkjlklkj](https://github.com/Luxury-Builder/Luxury-Shield-18-Builder/assets/148794278/9884b833-2a14-4784-b55b-741b2d76673d)
 
